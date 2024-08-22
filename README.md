@@ -1,6 +1,6 @@
 ![tumblr_3c268327b5d0b3fa57855b4b5d842c13_e984f041_1280](https://github.com/user-attachments/assets/00c05e43-4864-43e9-a67f-24e0c7a4fedb)
 
-![Untitled148_20240822170538](https://github.com/user-attachments/assets/f67ce141-76b8-4e00-9f2e-f0b23f96f36b)
+[![Untitled312-20240822114830.png](https://i.postimg.cc/3rGszHN3/Untitled312-20240822114830.png)](https://postimg.cc/t7XvVwFc)
 
 
 ***Link***er / *Sin*ner ,, they/them + . **aliven't** Pan**romantic** , *Aego*sexual, *Gender****fluid***.
