@@ -3,7 +3,7 @@
 [![Untitled312-20240822114830.png](https://i.postimg.cc/3rGszHN3/Untitled312-20240822114830.png)](https://postimg.cc/t7XvVwFc)
 
 
-***Link***er / *Sin*ner ,, they/them + . **aliven't ...** ![tumblr_a75409c959ef36437219662aeabff21b_3fe2d0de_75 gif](https://github.com/user-attachments/assets/5cd4c0ce-f978-4219-b974-ca176add0cbe)
+***Link***er / *Sin*ner ,, he/they + . **aliven't ...** ![tumblr_a75409c959ef36437219662aeabff21b_3fe2d0de_75 gif](https://github.com/user-attachments/assets/5cd4c0ce-f978-4219-b974-ca176add0cbe)
 
  Pan**romantic** , *Aego*sexual, *Gender****fluid***.
 *- ⊹ ࣪ ˖ soon to be **15** !* —
