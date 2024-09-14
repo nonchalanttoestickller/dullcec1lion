@@ -8,7 +8,7 @@
  Pan**romantic** , *Aego*sexual, *Gender****fluid***.
 *- ⊹ ࣪ ˖ soon to be **15** ; 9.25 !* —
 
-‎‎ ***!!! ![tumblr_7c7a64d737b5f206bbd960eaea2da30e_d2f60e01_75 gif](https://github.com/user-attachments/assets/0238e456-76ee-47e3-a24a-0ce403738211)‎*** don't copy my skins please <3,
+‎‎ ***![tumblr_7c7a64d737b5f206bbd960eaea2da30e_d2f60e01_75 gif](https://github.com/user-attachments/assets/0238e456-76ee-47e3-a24a-0ce403738211)‎*** don't copy my skins please <3,
 tell me if you're gonna inspo, especially for friends, this is still applied! and if i gifted you, please credit me <333 ***!!!*** — 
 
 ***‎‎+ ![tumblr_a9869df39d0433748fe8c1bba2d7505b_3d97640e_75 gif](https://github.com/user-attachments/assets/26a485c3-4ee7-4c2e-bb49-cbd275762de9) I loooovvveeee chi, and mind-soul sooooo much !!!***
